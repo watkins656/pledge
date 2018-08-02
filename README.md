@@ -1,6 +1,6 @@
 # pledge
 
-#I, Dustin Watkins, will take EVERY OPPORTUNITY to advance myself with abandon
+# I, Dustin Watkins, will take EVERY OPPORTUNITY to advance myself with abandon
 
 Good intentions WILL NOT achieve my goals
 
