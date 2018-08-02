@@ -14,4 +14,4 @@ I will ALWAYS FAVOR ACTION over talking, wishing, hoping, and wondering
 
 I WILL ALLOW MYSELF to achieve my dreams
 
-I’m a FULL-(optional expletive) STACK DEVELOPER!
+I’m a FULL FREAKING STACK DEVELOPER!
